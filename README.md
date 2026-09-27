@@ -1,4 +1,4 @@
-# Anna-Chumakova
+
 # Hi there, I'm Anna 👋 
 ### Founder & Senior SEO Specialist at [Be Mako](https://be-mako.com)
 
